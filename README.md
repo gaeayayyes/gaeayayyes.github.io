@@ -3,7 +3,9 @@
 
 >I am a miracle sent from heaven and my ego is higher than my grades!
 
-<How to be a winner:>
+<img src="https://i.pinimg.com/originals/74/c5/3b/74c53bd663df32539121d22bbb3a088d.jpg"
+==How to be a winner:==
+ 
 You can't. 
 
 
