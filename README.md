@@ -3,6 +3,9 @@
 
 >I am a miracle sent from heaven and my ego is higher than my grades!
 
+<How to be a winner:>
+You can't. 
+
 
  
 <p align="center"> <img src="https://64.media.tumblr.com/3e7362bb23838c753a2e0e9a9f8ed602/tumblr_pdampc3kRG1veo71uo3_1280.png" 
