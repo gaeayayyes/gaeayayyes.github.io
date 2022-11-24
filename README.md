@@ -8,8 +8,7 @@ How to be a winner:
 
 Don't.
      
-<p align="center"> <img src="https://i.pinimg.com/originals/74/c5/3b/74c53bd663df32539121d22bbb3a088d.jpg"
-You can't. 
+<p align="center"> <img src="https://i.pinimg.com/originals/74/c5/3b/74c53bd663df32539121d22bbb3a088d.jpg"/>
 
 
  
@@ -20,5 +19,4 @@ You can't.
 <p align="center"> <img src="https://i.pinimg.com/564x/98/b7/83/98b78352aa9a560064aeff7724ade4dc.jpg" 
      width="400" 
      height="400" />
- </p>
-
+ 
