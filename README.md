@@ -12,8 +12,10 @@ Don't.
  
  
  Just fake it till you make it!
+ 
 
- <p align="center"> <img src="https://i.pinimg.com/originals/3c/69/9f/3c699fd7ea16197f4704a4b3f7e831bb.jpg" width="300" 
+
+<p align="center"> <img src="https://i.pinimg.com/originals/3c/69/9f/3c699fd7ea16197f4704a4b3f7e831bb.jpg" width="300" 
       />
   
  
