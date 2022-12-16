@@ -47,6 +47,8 @@ Likes:
      For me, whales in general make me calm, their shape and how they move in the ocean, slowly but steady. I've seen artworks of whales before and their image is refreshing to look at.
 - Understanding people. 
      These kinds of people make me feel safe and calm. They reassure and make sure no one look bad in any given situation.
+- Daydreaming
+     As said in my hobbies, I love daydreaming. DAy dreaming helps me boost my imagination and give myself ideas what to draw.
      
  
 
