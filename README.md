@@ -28,6 +28,11 @@ More about me:
      
 - I always try
   As said by my friend, I always try and do the best I can for others, even when my help doesn't help at all.
+
+     
+<center> <img src="https://i.pinimg.com/564x/23/b7/06/23b7064408ca1dc3d2b9e1bd9a716363.jpg" 
+     width="500" 
+     height="300" />
      
 >It will always be you against the world.
      
@@ -38,9 +43,11 @@ Hobbies:
 - Daydreaming
      
 Likes:
-- First thing on the list, I like whales.
-For me, whales in general make me calm, their shape and how they move in the ocean, slowly but steady. I've seen artworks of whales before and their image is refreshing to look at.
-- 
+- First thing on the list, I like whales. 
+     For me, whales in general make me calm, their shape and how they move in the ocean, slowly but steady. I've seen artworks of whales before and their image is refreshing to look at.
+- Understanding people. 
+     These kinds of people make me feel safe and calm. They reassure and make sure no one look bad in any given situation.
+     
  
 
  
