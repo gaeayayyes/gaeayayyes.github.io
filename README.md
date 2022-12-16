@@ -38,8 +38,9 @@ Hobbies:
 - Daydreaming
      
 Likes:
-First thing on the list, I like whales.
-For me, whales in general make me calm, their shape and how they move in the ocean, slowly but steady, are calming and 
+- First thing on the list, I like whales.
+For me, whales in general make me calm, their shape and how they move in the ocean, slowly but steady. I've seen artworks of whales before and their image is refreshing to look at.
+- 
  
 
  
