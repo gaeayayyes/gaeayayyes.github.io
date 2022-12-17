@@ -62,6 +62,7 @@ Goals or hopes:
 - To gain enough money for myself.
 - To be more independent
 - To have more self-confidence.
+- To make myself proud for how far I've come.
 
 
  
