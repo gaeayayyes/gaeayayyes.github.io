@@ -24,11 +24,11 @@ Hello, I am Gaea! I am 15 years old, born on the 27th of February. I am an INFP,
 - I always try
   As said by my friend, I always try and do the best I can for others, even when my help doesn't help at all.
 
-
-
-     
+---     
 >It will always be you against the world.
-     
+
+
+
 Hobbies:
 - Drawing/ Sketching
 - Reading
@@ -41,8 +41,9 @@ Likes:
 - Understanding people. 
      These kinds of people make me feel safe and calm. They reassure and make sure no one look bad in any given situation.
 - Daydreaming
-     As said in my hobbies, I love daydreaming. DAy dreaming helps me boost my imagination and give myself ideas what to draw.
-- I like watching shows
+     As said in my hobbies, I love daydreaming. Day dreaming helps me boost my imagination and give myself ideas what to draw.
+- The fantasy genre
+     I love this type of genre because it includes magical beings and settings. This genre also strengthens my imagination and somehow gives me the carefree vibe.
      
  
 
