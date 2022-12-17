@@ -67,8 +67,15 @@ Goals or hopes:
 - To have more self-confidence.
 - To make myself proud for how far I've come.
 
-Interests:
-- It 
+>You're jealous of your own friends? Can't relate. I pray for all my girls success.
 
+Achievements: 
+- I have regularly received with high and with honors awards.
+- I have won first place in a singing contest.
+- I have participated in 3 beauty contests and won second place in one.
+- I have been part of a journalism team and won 2nd place.
+- I have been part of the varsity team in my elementary school.
+- I have been president of the whole elementary school.
+- 
 
  
