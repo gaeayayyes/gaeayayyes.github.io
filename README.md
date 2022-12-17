@@ -44,6 +44,8 @@ Likes:
      As said in my hobbies, I love daydreaming. Day dreaming helps me boost my imagination and give myself ideas what to draw.
 - The fantasy genre
      I love this type of genre because it includes magical beings and settings. This genre also strengthens my imagination and somehow gives me the carefree vibe.
+- Sky Lanterns
+     Sky Lanterns are very beautiful for me. Just like stars they make the sky look pretty and they continue to float up the sky. They also give me a magical vibe.
      
 
 <center> <img src="https://64.media.tumblr.com/eecf5a6c777b25c93bc1f6b7d46b4961/23fb8777ada83a0d-0b/s640x960/a151094ed52e69fa9203c73cc825977ea0a55973.jpg" 
