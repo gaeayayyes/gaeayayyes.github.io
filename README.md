@@ -133,4 +133,4 @@ Thank you for viewing my webpage! And many thanks to those who read everything! 
 >Don't judge a book by its cover
 
 Because we aren't too sure of what and how they are. Sometimes others tend to judge other people and label them with negativity.
-Additionally we shouldn't see or view others based on a hierarchy, we are all equal, what differentiates us is the labels we give each other.
+Additionally, we shouldn't see or view others based on a hierarchy, we are all equal, what differentiates us is the labels we give each other.
