@@ -23,6 +23,9 @@ Hello, I am Gaea! I am 15 years old, born on the 27th of February. I am an INFP,
      
 - I always try
   As said by my friend, I always try and do the best I can for others, even when my help doesn't help at all.
+  
+- I easily get bored
+  I may not look like it but I get bored very easily. I preffer to do something fun at any given moment, or to at least busy myself with my hobbies or interests.
 
 ---     
 >It will always be you against the world.
@@ -63,6 +66,9 @@ Goals or hopes:
 - To be more independent
 - To have more self-confidence.
 - To make myself proud for how far I've come.
+
+Interests:
+- It 
 
 
  
