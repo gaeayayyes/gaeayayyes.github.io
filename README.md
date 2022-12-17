@@ -125,3 +125,11 @@ Songs I relate to:
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/47m5x8zwiI7agRYFpZQBlH?utm_source=generator" width="100%" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/3zAqapGmeTcDB4xES8LBUL?utm_source=generator" width="100%" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+>Please don't treat me by how you label me
+
+Thank you for viewing my webpage! And many thanks to those who read everything! My last quote for to end this webpage is 
+
+>Don't judge a book by its cover
+
+Because we aren't too sure of what and how they are. Sometimes others tend to judge other people and label them with negativity.
