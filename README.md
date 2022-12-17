@@ -45,6 +45,12 @@ Likes:
 - The fantasy genre
      I love this type of genre because it includes magical beings and settings. This genre also strengthens my imagination and somehow gives me the carefree vibe.
      
+
+<center> <img src="https://64.media.tumblr.com/eecf5a6c777b25c93bc1f6b7d46b4961/23fb8777ada83a0d-0b/s640x960/a151094ed52e69fa9203c73cc825977ea0a55973.jpg" 
+     width="300" 
+     height="300" />
+
+     
  
 
  
