@@ -53,11 +53,9 @@ Likes:
      height="300" /></center>
 
      
-- nsdfjdsnfjnds
-- dfnsdjfndsjkf
-- dsvjndsjnsdjbf
-- sdnjfsdnfjdsbf
- 
+>I am going to make a beautiful life for myself no matter what it takes
+
+
 
 
  
