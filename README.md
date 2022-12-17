@@ -55,7 +55,13 @@ Likes:
      
 >I am going to make a beautiful life for myself no matter what it takes
 
-
+Goals or hopes:
+- To see a dozen sky lanterns in the sky up close, prefferably on my birthday.
+- To improve my art skills.
+- To go to a flower field.
+- To gain enough money for myself.
+- To be more independent
+- To have more self-confidence.
 
 
  
